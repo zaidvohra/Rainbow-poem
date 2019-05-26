@@ -8,4 +8,4 @@ main adam gerie  ap k lye new code likh rha hu.. isko acpr kro g
 
 
 huahahahah
-ok sehri time
+ok sehri time.
